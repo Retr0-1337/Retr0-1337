@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Retr0-1337
+- 👀 I’m interested in AI 
+- 🌱 I’m currently learning Ruby
+- 📫 How to reach me Elias🍓🍊🍋🍑#0333 just copy paste
